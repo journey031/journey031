@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding that's why I took the course BSCS.
 - 🌱 I’m currently learning how to code using different computer languages. 
 - 💞️ My hobbies are: Napping, Watching K-drama and Playing Online Games. 
-- 📫 To reach me, you can DM me via School email, Personal Email and Social Media Accounts.
+- 📫 To reach me, you can DM me via School email, Personal Email and SNS.
      journeymariz.semonia@wvsu.edu.ph journeymarizsermonia@gmail.com 
 
 <!---
